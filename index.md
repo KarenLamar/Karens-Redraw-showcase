@@ -1,4 +1,18 @@
-Updates every other day
+Updates Whenever
+
+## January 8, 2021
+
+![Lamar Redraws](redraws/temmerthekitty.png)
+
+![Lamar Redraws](redraws/sarah.png)
+
+![Lamar Redraws](redraws/moragel.png)
+
+![Lamar Redraws](redraws/Ringlightjerk.png)
+
+![Lamar Redraws](redraws/Greta.png)
+
+![Lamar Redraws](redraws/Baxtaaa.png)
 
 ## December 16, 2020 
 
